@@ -4,4 +4,4 @@
 
 
 ## Intro
-Hi i still bite..
+Hi i still bite.. Have many name you can call me Ruz
